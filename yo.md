@@ -1,5 +1,5 @@
 ## Carlos Eduardo Laverde Sabogal ##
-¡[foto](![Uploading Foto corbata CELS.JPG…]()
+¡[foto](![Uploading Foto corbata CELS.JPG…])
 # Soy anestesiólogo intensivista, con 18 años de experiencia en instituciones públicas y privadas en Colombia. A lo largo de estos años me he desempeñado como jefe de varias Unidades de Cuidado Intensivo y del Departamento de Anestesiología del Hospital Universitario Mayor y Barrios Unidos (Méderi) en Bogotá, donde lideré el desarrollo del programa académico de Anestesiología de la Facultad de Medicina de la Universidad del Rosario.#
 
 #Actualmente soy profesor asistente de la Facultad de Medicina de la Pontificia Universidad Javeriana, colaborando con el equipo del Centro de Simulación Clínica en el desarrollo e implementación de nuevos contenidos educativos virtuales en tiempos de pandemia por COVID-19, entre los cuales se incluyen talleres de arritmias cardíacas, gases arteriales y escenarios de simulación de alta fidelidad de reanimación cardiopulmonar para estudiantes de especializaciones médicas, como Geriatría, Medicina Interna y Anestesiología.#
