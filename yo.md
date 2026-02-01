@@ -9,5 +9,11 @@
 #Como autor de varias publicaciones científicas nacionales e internacionales, en la actualidad lidero como investigador principal dos proyectos: el más avanzado, ganador de una convocatoria de financiación institucional, sobre la “identificación de factores asociados a la autoextubación en cuidado intensivo”; y el otro acerca de la “falta de sueño y la carga cognitiva, y su impacto en la pérdida de conciencia situacional en los residentes de Medicina del Hospital Universitario San Ignacio”. Allí he trabajado durante los últimos 7 años en la Unidad de Cuidado Intensivo, participando en primera línea en el manejo de pacientes críticamente enfermos por SARS-CoV-2 desde la declaración mundial de pandemia por COVID-19.#
 
 #Por último, mi principal preocupación ha sido la salud mental de mis colegas y, junto con la Sociedad Regional de Anestesiología, hemos realizado un torneo de tenis durante los últimos ocho años, y retomado despues de pandemia #
+# Me encantan los perros, me han acompañado desde que tengo memoria, hoy en dia Tito, vive con nosotros, lo adoptamos ya hace 2 años a traves de una fundación que lo rescato de la calles en el municipio de la Calera. tambien tenemos a Bluma, ella es una pastora aleman que esta con nosotros desde hace 8 años, hoy en dia vive con mis papas y la visitamos los fines de semana#
+i[foto](!![Despues de atacar la cama y regañarlo](https://github.com/user-attachments/assets/f5984640-deb9-44f6-9709-132ae4d73fd7)
+i[foto bluma](![20200831_165526](https://github.com/user-attachments/assets/ca9e2b38-02d3-46b2-8925-87488f756d75)
+
+
+
 
 
